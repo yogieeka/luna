@@ -203,13 +203,9 @@ Access & Correction Requests and Inquiries, Limiting the Processing of Personal 
 
 Subject to any exceptions under applicable laws of your home nation or Alternate Country, you may request for access to and/or request correction of your Personal Data, request to limit the processing of your Personal Data for the Additional Purposes and/or make any inquiries regarding your Personal Data by contacting:
 
-    Luna Solusi Indonesia
+    Luna POS Indonesia
 
-Komplek Harmoni Plaza Blok K No. 7 Lantai 3,
-
-Jl Suryopranoto No. 02 Kel. Petejo Utara, Kec. Gambir Kota,
-
-Jakarta Pusat, Indonesia
+Jl.Bkr no 24, lengkong, bandung, Indonesia
 
 Subject to any laws of your home nation or Alternate Country, Luna reserves the right to impose a fee for access of your Personal Data in the amounts as permitted therein.
 
